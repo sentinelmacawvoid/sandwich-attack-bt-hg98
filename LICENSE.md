@@ -1,4 +1,4 @@
-# 
+# smart bot de sniper MEV complementos es el mejor bot de sniper MEV complementos con modo simulación y análisis de pools de liquidez. Seguro, confiable y optimizado para
 
 
 
